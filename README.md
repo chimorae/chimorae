@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://file.garden/ZmcDpnzFI2_QBur6/gachiakuta-remlin.gif)
+<img src="https://files.catbox.moe/xlh7g4.jpg" width="330" />
 
 #### <sup> lua⠀17⠀she/he⠀🏳️‍🌈⠀[ata](https://555.atabook.org/)⠀[prns](https://en.pronouns.page/@footage) </a>
 <details>

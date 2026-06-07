@@ -2,12 +2,4 @@
 
 <img src="https://files.catbox.moe/w04a5j.png" width="50" />
 
-### <sup> lua⠀17⠀she/he⠀⚧⠀[ata](https://555.atabook.org/)⠀[prns](https://en.pronouns.page/@footage) </a>
-<details>
-  <summary>  byi </summary>
-<sup> sorry if i respond like a bot on my atabook...... i might as well have been born yesterday
-<br> 99% afk/offtab, whisps will grab my attention if necessary... always up to int otherwise
-<br> i don't really have a dni and if i dont like it, i wont make it my problem
-<br> that being said, ill likely just unhide you if you ask elsewhere @_@;..
-<br> rntry is a wip i cant do this... c+h boundaries depend on whoever im sat with  </a>
-</details>
+### <sup> lua⠀17⠀she/he⠀⚧⠀[rentry](https://rentry.co/u3mc8um9)⠀[ata](https://555.atabook.org/) </a>

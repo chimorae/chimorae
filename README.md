@@ -8,5 +8,5 @@
 <sup> 99% afk/offtab, whisps will grab my attention if necessary... always up to int otherwise
 <br> i don't really have a dni and if i dont like it, i wont make it my problem
 <br> that being said, ill likely just unhide you if you ask elsewhere @_@;..
-<br> rntry is a wip i cant do this </a>
+<br> rntry is a wip i cant do this... c+h boundaries depend on whoever im sat with  </a>
 </details>
